@@ -8,5 +8,4 @@ Meu nome é Maria Vitória Da Mata
 **Você pode entrar em contato comigo 📫**
 00001105789421sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/vatobiox-gif-13942917891130593631)
-
+![](https://media1.tenor.com/m/rv20dFusX-QAAAAC/love.gif)
